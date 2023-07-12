@@ -12,7 +12,7 @@
 
 ## Feito por:
 
-### Joana Santos
+### Vanessa Rocha
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/vanessa-rocha1
 
